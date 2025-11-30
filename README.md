@@ -1,6 +1,7 @@
 
 please use tone tags.
 hello hello!! we are a system and a minor so be aware of that X_^ we play roblox and vrc
+
 DNI DSMP, dandys world, and basic DNI criteria
 
 
